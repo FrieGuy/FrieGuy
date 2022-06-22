@@ -1,0 +1,4 @@
+- Hey all my name is Paul and I am new to all things coding, so please be patient with me 🌱
+- I’m interested in outdoor activities, learning new things and working with the public!
+- I’m currently learning HTML, CSS and all things code that I can apply to learning more about this coding world!
+- Please feel free to reach me at my e-mail: PaulFrie13@gmail.com or on here! Let's chat!
